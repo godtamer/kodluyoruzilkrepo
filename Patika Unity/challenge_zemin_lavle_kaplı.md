@@ -1,0 +1,1 @@
+# En yakın zamanda yapmalıyım fakat Unity'nin kendi sitesinden eğitime devam edip oradan badge kazanmak çok daha hoş geldi.
